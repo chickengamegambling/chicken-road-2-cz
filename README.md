@@ -5,7 +5,7 @@ Objevte hru, která dobývá online hráče, a užijte si jedinečný zážitek 
 
 **[🐔 Hraj o skutečné peníze!](https://chickenroad-2.app/redirect-chicken-road-2/)**
 
-Oficiální web: [chickenroad-2.app](https://chickenroad-2.app/cz/)
+Oficiální web: [chickenroad-2.app](https://chickenroad-2.app/cs/)
 
 ## Co je Chicken Road 2?
 
